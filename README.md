@@ -6,4 +6,4 @@
 
 ### Сейчас я не работаю, но нахожусь в поиске новой работы.
 
-![Фотография меня и мужа](https://disk.yandex.ru/i/utqY59NnDq2bQw)
+![Фотография меня и мужа](https://fullhdoboi.ru/wp-content/uploads/_ph/31/315988009.jpg)
